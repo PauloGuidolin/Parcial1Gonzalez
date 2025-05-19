@@ -1,1 +1,1 @@
-# parcial1Gonzales
+# parcial1Gonzales# recuperatorio_parcial
